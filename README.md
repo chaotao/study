@@ -1,1 +1,1 @@
-# study
+# for study
